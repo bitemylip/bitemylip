@@ -2,3 +2,4 @@
 
 
 w2i or leave a msg on my [atabook](https://figure8.atabook.org) 
+<br> im offtab 95% of the time forgive me if i miss you
