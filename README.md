@@ -10,3 +10,9 @@ afk 90% of the time so im sorry if i miss your message
 
 [atabook](https://figure8.atabook.org)
 
+
+
+https://github.com/user-attachments/assets/3a7b6d8c-ddde-4611-80bd-bc1836a9b48e
+
+#1 topuria fan 
+
